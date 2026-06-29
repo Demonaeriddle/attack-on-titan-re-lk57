@@ -1,4 +1,4 @@
-#  
+#  Experience attack on titan revolution like never before with advanced Script for attack on titan revolution, the #1 Script. Includes auto-collect and
 
 
 
